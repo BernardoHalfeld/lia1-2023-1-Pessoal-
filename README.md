@@ -1,1 +1,2 @@
-# lia1-2023-1-Pessoal-
+# REPOSITÓRIO PESSOAL (LIA 1)
+### BERNARDO HALFELD
